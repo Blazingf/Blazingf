@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Blazingf
 - 👀 I’m interested in ... Coding
-- 🌱 I’m currently learning ... First year BTech
+- 🌱 I’m currently learning ... Second year BTech
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Through email
 
